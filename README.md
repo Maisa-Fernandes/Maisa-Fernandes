@@ -1,6 +1,8 @@
 - 👋 Hi,
 - 🌱 Estou em busca de Networking!
-- 🥳 Vamos interagir?
+- 🤜🏽🤛 Vamos interagir?
+
+- 
 
 
 "É necessário criar paixão por resultados." 
